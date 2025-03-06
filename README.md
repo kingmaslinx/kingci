@@ -1,0 +1,2 @@
+# kingci
+KİNGROYAL 💫 KİNGROYAL RESMİ 👍 KİNGROYAL GÜNCEL
